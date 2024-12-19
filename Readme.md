@@ -1,2 +1,2 @@
 HOCAM GERÇEKTEN ÇOK UĞRAŞTIM LÜTFEN 100 PUAN VERİN :(
-s
+Hadi insallah
